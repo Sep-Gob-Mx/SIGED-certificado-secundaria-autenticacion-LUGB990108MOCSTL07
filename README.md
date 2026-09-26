@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-LUGB990108MOCSTL07
+LUGB990108MOCSTL07
